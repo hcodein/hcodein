@@ -1,1 +1,1 @@
-web site == https://friolbgziw7fzmmb3wewxq.on.drv.tw/strongGPT.com/
+web site == https://sites.google.com/view/mekaraigobyblackhat2/home
